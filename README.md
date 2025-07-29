@@ -47,7 +47,7 @@ Stay tuned for **audition announcements** posted on our social media and mailing
 
 📧 Email: [resonance.studio1@gmail.com](mailto:resonance.studio1@gmail.com)  
 🔗 Website: [gatorresonance.com](http://gatorresonance.com)  
-📸 Instagram: [instagram.com](http://www.instagramcom/gatorresonance)   
+📸 Instagram: [instagram.com](http://www.instagram.com/gatorresonance)   
 📍 Location: University of Florida, Gainesville, FL
 
 ---
